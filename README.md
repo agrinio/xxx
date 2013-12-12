@@ -1,0 +1,4 @@
+xxx
+===
+
+Cryptocurrency coin
